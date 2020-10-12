@@ -15,7 +15,7 @@ as pringle
 
 Ready to mingle
 
-With a sweet cringle
+with a sweet cringle
 
 ### :notes: Hobbies
 - :guitar: Playing guitar
