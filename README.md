@@ -16,9 +16,13 @@ While my comedic line always goes with "Stay at home lang sa bahay", I believe t
 If I had a girlfriend, I'd send her memes and tell her she memes a lot to me.
 
 If I were to create a tinder account, my 10/10 would swipe right bio would be:
+
 Single 
+
 as pringle
+
 Ready to mingle
+
 With a sweet cringle
 
 <!--
