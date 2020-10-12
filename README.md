@@ -23,7 +23,13 @@ With a sweet cringle
 - :camera: Taking snaps of clouds
 - :cinema: Watching anime
 
-### ::
+### :smirk: Reasons to date me 
+ - :innocent: Single
+ - :joy: Funny
+ - :sunglasses: Handsome
+ - :muscle: Would bring stuff for ya
+ - :no_entry_sign::ghost: Certainly won't ghost ya
+ - :wink: Puns on point
 
 <!--
 **mgsc924/mgsc924** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
