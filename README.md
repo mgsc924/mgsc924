@@ -5,11 +5,11 @@
 I am a 21 yrs old IT student that loves to code and also passionate about playing music.
 In my pastime, I play guitar, listen to music, watch anime, take pictures of the sky or get lost in time with YouTube.
 
-Whilst everyone tells me that I am not funny, they must be wrong.:sunglasses:
+I am currently into listening to progressive music such as Plini, Intervals, Polyphia and Animals as Leaders.
 
 I think I am handsome since I think that I am and my mama told me so. 
 
-I am currently into listening to progressive music such as Plini, Intervals, Polyphia and Animals as Leaders.
+Whilst everyone tells me that I am not funny, they must be wrong.:sunglasses:
 
 While my comedic line always goes with "Stay at home lang sa bahay", I believe that to do is to be and to be is to do. 
 
