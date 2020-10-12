@@ -5,7 +5,7 @@
 I am a 21 yrs old IT student that loves to code and also passionate about playing music. I think I am handsome since I think that I am and my mama told me so. 
 
 Whilst everyone tells me that I am not funny, they must be wrong.:sunglasses:
-While my comedic line always goes with "Stay at home lang sa bahay", I believe that to do is to be and to be is to do. 
+While my comedic line always goes with "Stay at home lang sa bahay", I believe that to do is to be and to be is to do, doo bee doo bee doo. 
 If I had a girlfriend, I'd send her memes and tell her she memes a lot to me.
 If I were to create a tinder account, my 10/10 would swipe right bio would be:
 
